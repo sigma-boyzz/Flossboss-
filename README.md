@@ -12,7 +12,9 @@
 <div align="center">
   <img height="100" src="https://64.media.tumblr.com/d44e440f578076307d14c99dfd66b2d6/26d4ceb31fb9538c-ac/s400x600/43e5ac56de529fc014fe8bcddbd6e2e39545abcb.pnj" />
 <div align="center">
-  Floss • Tony • Sky
+  Ｆｌｏｓｓ <img src="https://files.catbox.moe/dcjlg3.png" /> Ｔｏｎｙ <img src="https://i.postimg.cc/Bb4VBQWn/269e0e9e-original.gif" /> Ｓｋｙ
+<div align="center">
+  She/Her
 <div align="center">
   <img width="400" src="https://64.media.tumblr.com/c55d52b2f2e7450b6522be9541f848f2/b47c4b5237d607a8-d0/s540x810/9b04d2228c9186501c68b12bc47e8ec7fad72c08.pnj" />
 </div>
