@@ -14,19 +14,19 @@
 <div align="center">
   Ｆｌｏｓｓ <img src="https://files.catbox.moe/dcjlg3.png" /> Ｔｏｎｙ <img src="https://i.postimg.cc/Bb4VBQWn/269e0e9e-original.gif" /> Ｓｋｙ
 <div align="center">
-  She/Her Female Straight
+  She/Her ⚘ Female ⚘ Straight
 <div align="center">
   <img width="400" src="https://64.media.tumblr.com/a8b79de25c7777bc1969b4e8bcdc3ffa/c35e83c80ef4a36a-d9/s540x810/d81887454bb0732ed2d66b72d6f5d5ddf2455216.pnj" />
 <div align="left">
   <img height="50" src="https://64.media.tumblr.com/06519913368c941aa11232581f9b8dea/18b563990ef4d871-7b/s250x400/6bea5bed7d8b39c363554fe7bb71944c56135c9f.pnj" />
 <div align=" left">
-𝘈𝘴𝘪𝘢𝘯 . 𝘛𝘩𝘢𝘪/𝘌𝘯𝘨
+〘 𝘈𝘴𝘪𝘢𝘯 . 𝘛𝘩𝘢𝘪/𝘌𝘯𝘨 〙
 <div align="center">
   <img width="400" src="https://64.media.tumblr.com/9f25523aa0a81df7d2a7968340820345/3f8aeff9a660eebc-3b/s540x810/e6fa11b42f24ff3420de9fd16eb62bab2abccf3c.pnj" />
 <div align="right">
   <img height="50 "src="https://64.media.tumblr.com/222d61a3b243db1c5401d82e7f484863/18b563990ef4d871-ba/s250x400/29322e018de0098bfe834903aa95b2a990699013.pnj" />
 <div align="right">
-  𝘔𝘋𝘋 . 𝘉𝘗𝘋
+  〘 𝘔𝘋𝘋 . 𝘉𝘗𝘋 〙
 <div align="center">
   <img width="400" src="https://media1.tenor.com/m/x5xhu8O8Py0AAAAd/demilore-girl-interrupted.gif" />
 </div>
