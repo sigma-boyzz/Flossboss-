@@ -22,11 +22,18 @@
 <div align=" left">
 〘 𝘈𝘴𝘪𝘢𝘯 . 𝘛𝘩𝘢𝘪/𝘌𝘯𝘨 〙
 <div align="center">
-  <img width="400" src="https://64.media.tumblr.com/9f25523aa0a81df7d2a7968340820345/3f8aeff9a660eebc-3b/s540x810/e6fa11b42f24ff3420de9fd16eb62bab2abccf3c.pnj" />
+  ︶⊹︶︶୨୧︶︶⊹︶
 <div align="right">
   <img height="50 "src="https://64.media.tumblr.com/222d61a3b243db1c5401d82e7f484863/18b563990ef4d871-ba/s250x400/29322e018de0098bfe834903aa95b2a990699013.pnj" />
 <div align="right">
   〘 𝘔𝘋𝘋 . 𝘉𝘗𝘋 〙
 <div align="center">
   <img width="400" src="https://media1.tenor.com/m/x5xhu8O8Py0AAAAd/demilore-girl-interrupted.gif" />
+<div align="center">
+  𝗰𝗮𝘂𝘁𝗶𝗼𝗻𝘀
+<div align="center">
+  𝘐 𝘢𝘱𝘰𝘭𝘰𝘨𝘪𝘻𝘦 𝘪𝘧 𝘐 𝘤𝘢𝘮𝘦 𝘢𝘤𝘳𝘰𝘴𝘴 𝘢𝘴 𝘢𝘳𝘳𝘰𝘨𝘢𝘯𝘵 𝘰𝘳 𝘳𝘶𝘥𝘦.
+  𝘐 𝘢𝘮 𝘯𝘰𝘵 𝘱𝘳𝘰𝘶𝘥 𝘩𝘰𝘸 𝘪 𝘣𝘦𝘩𝘢𝘷𝘦.
+  𝘐 𝘥𝘰 𝘯𝘰𝘵 𝘵𝘩𝘪𝘯𝘬 𝘣𝘦𝘧𝘰𝘳𝘦 𝘐 𝘴𝘱𝘦𝘢𝘬.
+  𝘐'𝘮 𝘵𝘳𝘺𝘪𝘯𝘨 𝘵𝘰 𝘧𝘪𝘹 𝘮𝘺 𝘣𝘦𝘩𝘢𝘷𝘪𝘰𝘳.
 </div>
