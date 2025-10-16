@@ -26,11 +26,13 @@
 <div align="right">
   <img height="50 "src="https://64.media.tumblr.com/222d61a3b243db1c5401d82e7f484863/18b563990ef4d871-ba/s250x400/29322e018de0098bfe834903aa95b2a990699013.pnj" />
 <div align="right">
-  〘 𝘔𝘋𝘋 . 𝘉𝘗𝘋 〙
+  ᵖᵃᵘˢᵉᵈ ᵗʰᵉʳᵃᵖʸ〘 𝘔𝘋𝘋 . 𝘉𝘗𝘋 〙
 <div align="center">
-  <img width="400" src="https://64.media.tumblr.com/536c9dd20da7a111dff917561f45ce88/3f8aeff9a660eebc-36/s540x810/be4bd7c3ed78f492f67aa8f250b1bf0d41d190f6.pnj" />
+  <img width="400" src="https://64.media.tumblr.com/5bef346c868a20cf2c557ca8af4ff2d8/cf2be94e8018e3b3-cf/s540x810/9d7dfd1a3936abafdf8cb1df180fbf1286a13e23.pnj" />
 <div align="center">
   <img width="400" src="https://media1.tenor.com/m/x5xhu8O8Py0AAAAd/demilore-girl-interrupted.gif" />
+<div align="center">
+  <img width="400" src="https://64.media.tumblr.com/fc08faedc65f596695eaa9c3b597ef5e/e9b0a2766a7948e6-5d/s540x810/8ce4be2439d8d660de2e0523b8896777cb6049a6.pnj" />
 <div align="center">
   𝗰𝗮𝘂𝘁𝗶𝗼𝗻𝘀
 <div align="center">
@@ -38,4 +40,6 @@
   𝘐 𝘢𝘮 𝘯𝘰𝘵 𝘱𝘳𝘰𝘶𝘥 𝘰𝘧 𝘩𝘰𝘸 𝘪 𝘣𝘦𝘩𝘢𝘷𝘦.
   𝘐 𝘥𝘰 𝘯𝘰𝘵 𝘵𝘩𝘪𝘯𝘬 𝘣𝘦𝘧𝘰𝘳𝘦 𝘐 𝘴𝘱𝘦𝘢𝘬.
   𝘐'𝘮 𝘵𝘳𝘺𝘪𝘯𝘨 𝘵𝘰 𝘧𝘪𝘹 𝘮𝘺 𝘣𝘦𝘩𝘢𝘷𝘪𝘰𝘳.
+<div align="center">
+<img width="400" src="https://64.media.tumblr.com/d636662c9370f902379513f5eae58acf/8961fffb7dac7bca-2a/s540x810/bae19311c540f5d43acde675a65a546ae53ae669.pnj" />
 </div>
