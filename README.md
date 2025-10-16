@@ -15,8 +15,12 @@
   Ｆｌｏｓｓ <img src="https://files.catbox.moe/dcjlg3.png" /> Ｔｏｎｙ <img src="https://i.postimg.cc/Bb4VBQWn/269e0e9e-original.gif" /> Ｓｋｙ
 <div align="center">
   She/Her Female Straight
+<div align="left">
+  <img height="50" src="https://64.media.tumblr.com/06519913368c941aa11232581f9b8dea/18b563990ef4d871-7b/s250x400/6bea5bed7d8b39c363554fe7bb71944c56135c9f.pnj" />
+<div align=" left">
+𝘈𝘴𝘪𝘢𝘯 . 𝘛𝘩𝘢𝘪/𝘌𝘯𝘨
+<div align="right">
+  <img height="50 "src="https://64.media.tumblr.com/222d61a3b243db1c5401d82e7f484863/18b563990ef4d871-ba/s250x400/29322e018de0098bfe834903aa95b2a990699013.pnj" />
 <div align="center">
-  <img height="200" src="https://64.media.tumblr.com/7d6f08c185e7aa60fc35529f854f97e0/467075a757f6a046-e3/s400x600/2035601d19053b03d4f67c4e08bd24de2baddc07.pnj" />
-<div align="center">
-  <img width="400" src="https://64.media.tumblr.com/c55d52b2f2e7450b6522be9541f848f2/b47c4b5237d607a8-d0/s540x810/9b04d2228c9186501c68b12bc47e8ec7fad72c08.pnj" />
+  <img width="400" src="https://media1.tenor.com/m/x5xhu8O8Py0AAAAd/demilore-girl-interrupted.gif" />
 </div>
