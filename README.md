@@ -28,12 +28,14 @@
 <div align="right">
   〘 𝘔𝘋𝘋 . 𝘉𝘗𝘋 〙
 <div align="center">
+  <img width="400" src="https://64.media.tumblr.com/536c9dd20da7a111dff917561f45ce88/3f8aeff9a660eebc-36/s540x810/be4bd7c3ed78f492f67aa8f250b1bf0d41d190f6.pnj" />
+<div align="center">
   <img width="400" src="https://media1.tenor.com/m/x5xhu8O8Py0AAAAd/demilore-girl-interrupted.gif" />
 <div align="center">
   𝗰𝗮𝘂𝘁𝗶𝗼𝗻𝘀
 <div align="center">
   𝘐 𝘢𝘱𝘰𝘭𝘰𝘨𝘪𝘻𝘦 𝘪𝘧 𝘐 𝘤𝘢𝘮𝘦 𝘢𝘤𝘳𝘰𝘴𝘴 𝘢𝘴 𝘢𝘳𝘳𝘰𝘨𝘢𝘯𝘵 𝘰𝘳 𝘳𝘶𝘥𝘦.
-  𝘐 𝘢𝘮 𝘯𝘰𝘵 𝘱𝘳𝘰𝘶𝘥 𝘩𝘰𝘸 𝘪 𝘣𝘦𝘩𝘢𝘷𝘦.
+  𝘐 𝘢𝘮 𝘯𝘰𝘵 𝘱𝘳𝘰𝘶𝘥 𝘰𝘧 𝘩𝘰𝘸 𝘪 𝘣𝘦𝘩𝘢𝘷𝘦.
   𝘐 𝘥𝘰 𝘯𝘰𝘵 𝘵𝘩𝘪𝘯𝘬 𝘣𝘦𝘧𝘰𝘳𝘦 𝘐 𝘴𝘱𝘦𝘢𝘬.
   𝘐'𝘮 𝘵𝘳𝘺𝘪𝘯𝘨 𝘵𝘰 𝘧𝘪𝘹 𝘮𝘺 𝘣𝘦𝘩𝘢𝘷𝘪𝘰𝘳.
 </div>
