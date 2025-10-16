@@ -14,7 +14,9 @@
 <div align="center">
   Ｆｌｏｓｓ <img src="https://files.catbox.moe/dcjlg3.png" /> Ｔｏｎｙ <img src="https://i.postimg.cc/Bb4VBQWn/269e0e9e-original.gif" /> Ｓｋｙ
 <div align="center">
-  She/Her
+  She/Her Female Straight
+<div align="center">
+  <img height="200" src="https://64.media.tumblr.com/7d6f08c185e7aa60fc35529f854f97e0/467075a757f6a046-e3/s400x600/2035601d19053b03d4f67c4e08bd24de2baddc07.pnj" />
 <div align="center">
   <img width="400" src="https://64.media.tumblr.com/c55d52b2f2e7450b6522be9541f848f2/b47c4b5237d607a8-d0/s540x810/9b04d2228c9186501c68b12bc47e8ec7fad72c08.pnj" />
 </div>
