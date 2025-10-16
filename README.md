@@ -1,9 +1,17 @@
 <div align="center">
   Father said i deserve my own apartment 
 <div align="center">
-  <img width="400" src="https://wilardo.crd.co/assets/images/gallery05/4c3ce3b5_original.png?v=ca679d09" />
+  <img width="400" src="https://64.media.tumblr.com/f3fccbdced66565141b7a7a6e682e586/890b530645504c2a-fe/s540x810/7265cf8698d8672b5c9ae1f368e9623f8d14399c.gifv" />
+<div align="center">
+  <img width="400" src="https://64.media.tumblr.com/f1bc031795f70c8633273b0ae9a4072d/b3d328cbd1a500dd-ea/s540x810/42cee32b8b9fb24c641a7787f4bbe1d3268d93ab.pnj" />
 <div align="center">
   <img height="300" src="https://media1.tenor.com/m/bXvaTlQMqwUAAAAd/tea-gossip.gif"  />
+<div align="center">
+  <img width="400" src="https://wilardo.crd.co/assets/images/gallery05/90869520_original.png?v=ca679d09" />
+<div align="center">
+  Floss • Tony • Sky
+<div align="center">
+  <img width="400" src="https://wilardo.crd.co/assets/images/gallery05/4c3ce3b5_original.png?v=ca679d09" />
 </div>
 
 ###
