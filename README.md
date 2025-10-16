@@ -10,7 +10,7 @@
 <div align="center">
   <img width="400" src="https://wilardo.crd.co/assets/images/gallery05/90869520_original.png?v=ca679d09" />
 <div align="center">
-  <img height="100" src="https://64.media.tumblr.com/d44e440f578076307d14c99dfd66b2d6/26d4ceb31fb9538c-ac/s400x600/43e5ac56de529fc014fe8bcddbd6e2e39545abcb.pnj" />
+  <img height="50" src="https://64.media.tumblr.com/5c02a7526b116ee57f9f0aba518c1209/c728d7ebec5fa632-5f/s250x400/03b676004d378144aa8601de569d58ad85b2b4e1.pnj" />
 <div align="center">
   Ｆｌｏｓｓ <img src="https://files.catbox.moe/dcjlg3.png" /> Ｔｏｎｙ <img src="https://i.postimg.cc/Bb4VBQWn/269e0e9e-original.gif" /> Ｓｋｙ
 <div align="center">
@@ -21,6 +21,8 @@
 𝘈𝘴𝘪𝘢𝘯 . 𝘛𝘩𝘢𝘪/𝘌𝘯𝘨
 <div align="right">
   <img height="50 "src="https://64.media.tumblr.com/222d61a3b243db1c5401d82e7f484863/18b563990ef4d871-ba/s250x400/29322e018de0098bfe834903aa95b2a990699013.pnj" />
+<div align="right">
+  𝘔𝘋𝘋 . 𝘉𝘗𝘋
 <div align="center">
   <img width="400" src="https://media1.tenor.com/m/x5xhu8O8Py0AAAAd/demilore-girl-interrupted.gif" />
 </div>
